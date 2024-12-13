@@ -5,5 +5,5 @@
     💞️ I’m looking to collaborate on web project
     📫 How to reach me lovetong106@gmail.com or semsakadanupol@gmail.com
     😄 Pronouns: ...
-    ⚡ Fun fact: am no experience on web project
+    ⚡ Fun fact: i do that project 3 months
 
